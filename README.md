@@ -1,3 +1,3 @@
 - 👋 Hi, I’m luis
 - 👀  UI/UX designer and builder 
-- 🌱 Currently learning ... TailwindCSS,JS..
+- 🌱 Currently learning ... C,TailwindCSS,JS : )
