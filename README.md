@@ -14,10 +14,14 @@ more social links to be added soon
 #### Where to find me
 
 - Here 👋
-- [Twitter 🦜(https://twitter.com/howinns)]
-- [Instagram 📷(https://instagram.com)]
-- [LinkedIn🧑🏽‍💻(#)]
-- [My Website 🌍(#)]
+- [Twitter 🦜](https://twitter.com/howinns)
+- [Instagram 📷](https://instagram.com)
+- [LinkedIn🧑🏽‍💻](#)
+- [My Website 🌍](#)
+
+#### Blogs coming up soon
+
+- Blogs coming up
 
 #### I would love to:
 
