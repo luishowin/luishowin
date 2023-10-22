@@ -13,7 +13,7 @@ more social links to be added soon
 
 #### Where to find me
 
-- Here 👋
+- Here 📍
 - [Twitter 🦜](https://twitter.com/howinns)
 - [Instagram 📷](https://instagram.com)
 - [LinkedIn🧑🏽‍💻](https://https://linkedin.com/in/luismaina)
