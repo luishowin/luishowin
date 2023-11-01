@@ -21,7 +21,7 @@ more social links to be added soon
 
 #### Blogs
 
-- [Medium 📰](https://medium.com/@howinsr/how-to-check-battery-health-on-samsung-phones-android-adb-2789aa54c694)
+- [Medium 📰](https://medium.com/@howinsr)
 
 #### I would love to:
 
