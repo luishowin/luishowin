@@ -19,9 +19,9 @@ more social links to be added soon
 - [LinkedIn🧑🏽‍💻](https://https://linkedin.com/in/luismaina)
 - [My Website 🌍](#)
 
-#### Blogs coming up soon
+#### Blogs
 
-- Blogs coming up
+- [Medium 📰](https://medium.com/@howinsr/how-to-check-battery-health-on-samsung-phones-android-adb-2789aa54c694)
 
 #### I would love to:
 
