@@ -16,7 +16,7 @@ more social links to be added soon
 - Here 📍
 - [Twitter 🦜](https://twitter.com/howinns)
 - [Instagram 📷](https://instagram.com)
-- [LinkedIn🧑🏽‍💻](https://https://linkedin.com/in/luismaina)
+- [LinkedIn🧑🏽‍💻](https://www.linkedin.com/in/luismaina/)
 - [My Website 🌍](#)
 
 #### Blogs
