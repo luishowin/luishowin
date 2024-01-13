@@ -8,7 +8,7 @@ more social links to be added soon
 
 - UI/UX designer and builder 
 - Currently learning ... C,TailwindCSS,JS : )
-- Enrolled at ALX Africa, Software engineering
+- Student at ALX Africa, Software engineering
 - Based in Nairobi, Kenya
 
 #### Where to find me
