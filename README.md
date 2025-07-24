@@ -3,7 +3,7 @@
 #### About me
 
 - UI/UX designer.
-- Currently learning ... C,TailwindCSS,JS.
+- Currently learning ... C.
 - Based in Nairobi, Kenya.
 
 #### Where to find me
