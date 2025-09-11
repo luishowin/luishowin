@@ -3,7 +3,7 @@
 #### About me
 
 - UI/UX designer.
-- Currently learning ... C.
+- Currently learning... patience
 - Based in Nairobi, Kenya.
 
 
