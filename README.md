@@ -2,7 +2,7 @@
 
 #### About me
 
-- UI/UX designer.
+- UX researcher and UI designer.
 - Currently learning... patience
 - Based in Nairobi, Kenya.
 
