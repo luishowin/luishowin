@@ -6,6 +6,7 @@
 - Currently learning ... C.
 - Based in Nairobi, Kenya.
 
+
 #### Where to find me
 
 - Here 📍
