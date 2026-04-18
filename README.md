@@ -10,7 +10,7 @@
 #### Where to find me
 
 - Here 📍
-- [x🦜](https://x.com/howinsr) & [x beben_design](https://x.com/beben_design)
+- [Twitter/ x🦜](https://x.com/howinsr) & [My business](https://x.com/beben_design)
 - [LinkedIn🧑🏽‍💻](https://www.linkedin.com/in/luishowin/)
 - [My Website 🌍](https://luishowin.space/) 
 
