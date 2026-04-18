@@ -10,9 +10,9 @@
 #### Where to find me
 
 - Here 📍
-- [Twitter 🦜](https://twitter.com/howinsr)
-- [LinkedIn🧑🏽‍💻](https://www.linkedin.com/in/luismaina/)
-- [My Website 🌍](https://luishowin.space/)
+- [x🦜](https://x.com/howinsr) & [x beben_design](https://x.com/beben_design)
+- [LinkedIn🧑🏽‍💻](https://www.linkedin.com/in/luishowin/)
+- [My Website 🌍](https://luishowin.space/) 
 
 
 #### I would love to:
