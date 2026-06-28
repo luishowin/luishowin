@@ -4,7 +4,7 @@ I build opinionated skills and products. I don't have a traditional engineering 
 #### Where to find me
 
 - Here 📍
-- [Twitter/ x🦜](https://x.com/howinsr) & [My business](https://x.com/beben_design)
+- [Twitter/ x🦜](https://x.com/howinsr) & [BEBEN DESIGN](https://x.com/beben_design)
 - [LinkedIn🧑🏽‍💻](https://www.linkedin.com/in/luishowin/)
 - [My Website 🌍](https://beben.design/) 
 
